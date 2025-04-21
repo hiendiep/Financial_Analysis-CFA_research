@@ -1,4 +1,4 @@
-# CFA Research Challenge 2023 – National Runner-UP
+# CFA Research Challenge 2023 – National Runner-up
 
 ## 1. Project Name
 
