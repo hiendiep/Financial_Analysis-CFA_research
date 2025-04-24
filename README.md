@@ -14,9 +14,9 @@
 
 - CFA Institute Research Challenge hosted in Vietnam | Foreign Trade University - HCMC Campus representative team
 - [Hoang Gia Huy](https://www.linkedin.com/in/giahuyhoang/)  
-- [Hieu Y Pham] (https://www.linkedin.com/in/hi%E1%BB%83u-%C3%BD-phan-353021202/)
-- [Nguyen Huy Dan] (
-- [Khai Nguyen] (https://www.linkedin.com/in/nkhai05/)
+- [Hieu Y Pham](https://www.linkedin.com/in/hi%E1%BB%83u-%C3%BD-phan-353021202/)
+- [Khai Nguyen](https://www.linkedin.com/in/nkhai05/)
+- [Nguyen Huy Dan]
   
 ## 4. Timeline
 
